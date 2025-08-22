@@ -1,1 +1,0 @@
-# SathwikPortfolio.github.io
